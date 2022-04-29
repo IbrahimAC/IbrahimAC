@@ -1,4 +1,4 @@
-### Welcome welcome to all good intentioned strangers 😄
+### Welcome welcome to all good intentioned people 😄
 <!--
 **IbrahimAC/IbrahimAC** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
